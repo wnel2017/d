@@ -3,7 +3,7 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/害国.jpg" /></td>
   </tr>
   <tr>
-      <td align=center>
+      <td align=left>
 请点击下方网址，如打开慢，缓冲稍等或刷新<br/> 
   </tr>
   <tr>
