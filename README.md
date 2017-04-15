@@ -13,14 +13,15 @@
 <br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813172&from=wnel">◆◆中共卖国，证据确凿</a><br/>
 <br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813247&from=wnel">◆◆对中共无神论说“不”！</a><br/>
+<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813246&from=wnel">◆◆共产主义是世界上最大恐怖主义</a><br/>
 <br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c812504&from=wnel">◆◆共产主义是世界上最大邪教</a><br/>
 <br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813247&from=wnel">◆◆在中国对无神论说“不”！</a><br/>
-<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813248&from=wnel
 ">◆◆马列主义是毒药</a><br/>
+<br/>
   </tr>
   <tr>
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
