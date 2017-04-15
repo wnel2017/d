@@ -13,7 +13,7 @@
 <br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813172&from=wnel">◆◆中共卖国，证据确凿</a><br/>
 <br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813246&from=wnel">◆◆中共是世界上最大恐怖主义</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813246&from=wnel">◆◆共产主义是世界上最大恐怖主义</a><br/>
 <br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c812504&from=wnel">◆◆中共是世界上最大邪教</a><br/>
 <br/>
