@@ -31,7 +31,6 @@
 </tr>
   <tr>
     <td align=center>
-如打开慢，缓冲稍等或刷新<br/>
 看完，<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx?from=wnel-3T">请点击在线快速办理</a><br/>
 全球近3亿人的幸运选择，珍贵机缘<br/>
 为你而来，这一次您千万别再错过～<br/>
