@@ -28,6 +28,13 @@
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816602&from=wnel">马克思的成魔之路</a><br/>
 </tr>
   <tr>
+    <td align=center>
+       如打开慢，缓冲稍等或刷新<br/>
+看完，<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?ogST.aspx?from=wnel-3T">请点击在线快速办理</a><br/>
+全球近3亿人的幸运选择，珍贵机缘<br/>
+为你而来，这一次您千万别再错过～<br/>
+  </tr>
+  <tr>
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
   </tr>
   <tr>
