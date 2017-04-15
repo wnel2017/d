@@ -5,7 +5,7 @@
   </tr>
   <tr>
       <td align=center>
-下方网址，请点击，如打开慢，缓冲稍等或刷新<br/> 
+请点击下方网址，如打开慢，缓冲稍等或刷新<br/> 
   </tr>
   <tr>
       <td align=left>
