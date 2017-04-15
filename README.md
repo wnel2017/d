@@ -13,6 +13,7 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813247&from=wnel">◆◆对中共无神论说“不”！</a><br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813246&from=wnel">◆◆共产主义是世界上最大恐怖主义</a><br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c812504&from=wnel">◆◆共产主义是世界上最大邪教</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">◆◆◆九评共产党：全球热传18年人！</a><br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813248&from=wnel
 ">◆◆马列主义是毒药</a><br/>
   </tr>
@@ -23,7 +24,6 @@
       <td align=left>
   * 参考资料：<br/>
 如打开慢，缓冲稍等或刷新<br/>
-◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年人心明</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FMTDWH.mp4&from=wnel">漫谈党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FBNGCD&from=wnel">百年共产党</a><br/>
