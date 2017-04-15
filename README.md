@@ -22,7 +22,7 @@
   </tr>
   <tr>
       <td align=left>
- * 参考资料：<br/>
+ * 延伸阅读：更多精彩：<br/>
 如打开慢，缓冲稍等或刷新<br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FMTDWH.mp4&from=wnel">漫谈党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
