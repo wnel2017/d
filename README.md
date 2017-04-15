@@ -3,8 +3,8 @@
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/共产邪灵.jpg" /></td>
   </tr>
   <tr>
-      <td align=center>
-真实的中国共产党<br/>
+      <td align=center>
+共产邪灵之邪恶共产党<br/>
   </tr>
   <tr>
       <td align=center>
