@@ -1,6 +1,6 @@
 <table>
   <tr>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/共产邪灵.jpg" /></td>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/共产邪灵.jpg" /></td> <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/害国.jpg" /></td>
   </tr>
   <tr>
       <td align=center>
