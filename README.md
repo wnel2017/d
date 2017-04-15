@@ -36,6 +36,21 @@
 为你而来，这一次您千万别再错过～<br/>
   </tr>
   <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/谎言.jpg" /></td><br/>
+  </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/恶魔.jpg" /></td><br/>
+  </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/谎言和暴力.jpg" /></td><br/>
+  </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/媒体谎言.jpg" /></td><br/>
+  </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/邪j.jpg" /></td><br/>
+  </tr>
+  <tr>
 <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
   </tr>
   <tr>
