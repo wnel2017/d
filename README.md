@@ -20,7 +20,7 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813247&from=wnel">◆◆在中国对无神论说“不”！</a><br/>
 <br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813248&from=wnel
-">马列主义是毒药</a><br/>
+">◆◆马列主义是毒药</a><br/>
   </tr>
   <tr>
   <tr><td align=center>▼▼▼更多精彩，请看下面▼▼▼<br/>
