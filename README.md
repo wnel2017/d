@@ -15,15 +15,15 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c812504&from=wnel">◆◆共产主义是世界上最大邪教</a><br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813248&from=wnel
 ">◆◆马列主义是毒药</a><br/>
-◆◆◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年！</a>◆◆◆<br/>
   </tr>
   <tr>
 <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/共产邪灵.jpg" /></td><br/>
   </tr>
   <tr>
       <td align=left>
- * 延伸阅读：更多精彩：<br/>
+ * 更多精彩专辑：全球热门：<br/>
 如打开慢，缓冲稍等或刷新<br/>
+◆◆◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FJP.mp4&from=wnel">九评共产党：全球热传18年！</a>◆◆◆<br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FMTDWH.mp4&from=wnel">漫谈党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?1D%2FJTDWH&from=wnel">解体党文化</a><br/>
 ◆<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?4EC%2FBNGCD&from=wnel">百年共产党</a><br/>
