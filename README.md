@@ -1,7 +1,6 @@
 <table>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/共产邪灵.jpg" /></td>
-    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/害国.jpg" /></td><br/>
   </tr>
   <tr>
       <td align=center>
@@ -20,6 +19,9 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c812504&from=wnel">◆◆共产主义是世界上最大邪教</a><br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813248&from=wnel
 ">◆◆马列主义是毒药</a><br/>
+  </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/害国.jpg" /></td><br/>
   </tr>
   <tr>
       <td align=left>
