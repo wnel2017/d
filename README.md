@@ -20,6 +20,8 @@
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c813248&from=wnel
 ">◆◆马列主义是毒药</a><br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F4%2F9%2Fn9018949.htm&from=wnel">◆◆共产主义的淫乱基因——性解放</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F13%2F7%2F2%2Fn3906831.htm&from=wnel">◆◆中共成立以来杀人记录！</a><br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?http%3A%2F%2F140%2Fgb%2F17%2F1%2F3%2Fn8663018.htm&from=wnel">◆◆中共变异了西方世界的思维和行为</a><br/>
   </tr>
   <tr>
 <td align=left>◆百年共产党真相◆特稿<br/>
