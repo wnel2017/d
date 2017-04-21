@@ -9,10 +9,6 @@
       <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
   </tr>
   <tr>
-      <td align=center>
-点下方网址，如打开慢，缓冲稍等或刷新<br/> 
-  </tr>
-  <tr>
 <td align=left>
  * 2017年全球热点文章<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c807209&from=wnel">◆◆中共害国，铁证如山</a><br/>
